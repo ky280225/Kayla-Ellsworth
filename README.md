@@ -1,7 +1,7 @@
 # Kayla this is me!
 
 
-## I'm in my 5th yr of Neuroscience :brain: #H2
+## I'm in my 5th yr of Neuroscience :brain: 
 
 ## I took this course so I could be an asset in the future teams that I'm on and also get certified in Neurotechnology Innovation *italicized text* 
 
